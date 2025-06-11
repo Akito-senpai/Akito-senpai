@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Akito-senpai
+- 👋 Hi, I’m @aki-7773
 - 🌱 I’m currently learning the basics of informatic
 - 💞️ I’m looking to collaborate with people 👉👈. xd
 - 📫 How to reach me: _aki_owo (discord)
